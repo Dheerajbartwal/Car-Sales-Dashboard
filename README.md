@@ -56,4 +56,4 @@ Contributions to this project are welcome! If you have suggestions for improveme
 
 ## Contact
 
-For questions or inquiries about this project, feel free to contact me at ganeshvadlamuri15@gmail.com . Your feedback is valuable, and I'm always open to collaboration and discussion.
+For questions or inquiries about this project, feel free to contact me at dheerajbartwal23@gmail.com . Your feedback is valuable, and I'm always open to collaboration and discussion.
